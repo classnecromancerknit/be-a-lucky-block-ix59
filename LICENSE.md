@@ -1,4 +1,4 @@
-#  
+#  be a lucky block Scripts top is the best be a lucky block Script, featuring auto-farm and auto-upgrade. Safe and powerful for all your needs.
 
 
 
